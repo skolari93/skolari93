@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @skolari93
-- 👀 I’m interested in music, physics, mathematics and coding
+- 👀 I’m interested in music, physics and mathematics
 - 📫 manudesoleure@pm.me
